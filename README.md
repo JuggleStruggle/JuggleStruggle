@@ -1,0 +1,2 @@
+- Hi Hi! It's the Jigglypuff ✨ @JuggleStruggle ✨! 👋
+- Currently I like playing some games like Minecraft!
